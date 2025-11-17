@@ -1,9 +1,10 @@
 <div align='center'> 
- <img src='https://files.catbox.moe/5b9i3u.webp' title='party poison'
+ <img src='https://files.catbox.moe/acpq38.webp' title='mike'
 
- <br>︶︶︶ ♱ ︶︶︶<br>
-<b>MICHAEL</b> : mikey<br>
-   <a href="https://pronouns.cc/@partypoisoned/">he<i>him</i></a> , <b>fifteen</b>
+ <br>
+ 
+<b>michael</b> &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; or &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; mikey<br>
+   <a href="https://pronouns.cc/@partypoisoned/">he<i>him</i></a> &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <b>fifteen</b>
 
  
  <a href="https://rentry.co/glitterybass">rentry</a> : <a href="https://mychemicalromance.atabook.org/">ata</a>
